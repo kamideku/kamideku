@@ -4,6 +4,8 @@
  
 biggest kamideku fan EVERRRR!! not the person to b around if u dont do ships or like my otp. im a multishipper and chronically online mha fan
 
+mha, yttd and mairuma are my main interests... hmu if you a fan 😼 if u know like 2 or more talk to me **NOW!!!**
+
 Okay with interactions I am just Really Awkward sometimes. I appreciate whispers since I may b offtab...
 
 <!--
