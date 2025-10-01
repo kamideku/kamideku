@@ -1,4 +1,4 @@
-> thank u friend on ponytown for teaching me how to use this
+> thank u friend on ponytown for teaching me how to use this . may update l8r
 
  I go by Cinnamon or Muffin or Floppa depending where you know me from... no preference
  
