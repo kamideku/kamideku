@@ -1,8 +1,8 @@
 thank u friend on ponytown for teaching me how to use this
 
-I go by Cinnamon or Muffin or Floppa depending where you know me from... no preference
-biggest kamideku fan EVERRRR!! not the person to b around if u dont do ships or like my otp. im a multishipper and chronically online mha fan
-Okay with interactions I am just Really Awkward sometimes. I appreciate whispers since I may b offtab...
+> I go by Cinnamon or Muffin or Floppa depending where you know me from... no preference
+> biggest kamideku fan EVERRRR!! not the person to b around if u dont do ships or like my otp. im a multishipper and chronically online mha fan
+> Okay with interactions I am just Really Awkward sometimes. I appreciate whispers since I may b offtab...
 
 <!--
 **kamideku/kamideku** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
