@@ -6,7 +6,7 @@ biggest kamideku fan EVERRRR!! not the person to b around if u dont do ships or 
 
 mha, yttd and mairuma are my main interests... hmu if you a fan 😼 if u know like 2 or more talk to me **NOW!!!**
 
-Okay with interactions I am just Really Awkward sometimes. I appreciate whispers since I may b offtab...
+Okay with interactions I am just Really Awkward sometimes. I appreciate whispers since I may b offtab... usually struggle approaching first
 
 <!--
 **kamideku/kamideku** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
