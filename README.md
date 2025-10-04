@@ -7,7 +7,7 @@ biggest kamideku fan EVERRRR!! not the person to b around if u dont do ships or 
 multifandom (mha, yttd, dw)
 
 Okay with interactions I am just Really Awkward sometimes. I appreciate whispers since I may b offtab... usually struggle approaching first
-pleeeeaassseee bmf im LONELY
+pleeeeaassseee bmf tho im LONELY
 
 <!--
 **kamideku/kamideku** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
